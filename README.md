@@ -1,1 +1,0 @@
-# Steal-a-egg
